@@ -1,0 +1,1 @@
+# 2026-revised-asia-itinerary-hk-hcmc-shen-mac-guang-beijing
